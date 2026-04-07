@@ -1,5 +1,5 @@
 - Hi, I’m @pranay kumar
-- I’m interested in web devolopment,gam dev,coding
+- I’m interested in web devolopment,gam dev,coding 
 - I’m currently learning advance engineering
 - I’m looking to collaborate on 
 - How to reach me
